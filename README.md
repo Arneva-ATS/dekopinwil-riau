@@ -1,1 +1,1 @@
-# dekopinwil-riau
+# dekopinda-karanganyar
